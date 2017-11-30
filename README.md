@@ -4,4 +4,4 @@ I'm a 31 year old woman who is graduating from American University in December w
 
 In middle school I would come home from school and get on AOL and play around in the chat rooms with friends. One of my favorite memories from the old internet days was making Sailor Moon fan sites on Geocities and making sure to pick out the perfect .midi music to go with each page! :)
 
-trying this again!!! >_<
+
