@@ -1,6 +1,4 @@
 # hello-world
-my first repository
-
 
 I'm a 31 year old woman who is graduating from American University in December with a Masters of Arts in International Affairs. In my last semester I am taking an international cybersecurity course and it revived my love of the tech and cyber world. I recently made a Github account to learn more.
 
